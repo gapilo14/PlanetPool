@@ -25,7 +25,7 @@ Il gioco è progettato per schermi 1920x1080 pixels e raggiunge un framerate mas
 
 Ci auguriamo che possa essere di vostro gradimento :)
 
-Andrea, Federico e [Gabriele](mailto:gapilo.14@outlook.com) \
+Andrea, [Federico](mailto:violfederico@gmail.com) e [Gabriele](mailto:gapilo.14@outlook.com) \
 ‎<br/>
 <br/>
 <br/>
